@@ -1,0 +1,1 @@
+# hinamo.github.io
